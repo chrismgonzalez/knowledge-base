@@ -1,1 +1,0 @@
-My personal IT knowledge base
